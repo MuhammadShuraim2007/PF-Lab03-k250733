@@ -5,4 +5,4 @@ Shuraim Aasif
 bachelors in computer sciences BS-CS
 
 ## Hobby
-In my leisure time I prefer to reading books
+In my leisure time I enjoy reading books
